@@ -12,6 +12,8 @@
 - 如何利用身边的道具，让肢体变得更加自然？
 - 如何缓解面对镜头的紧张感？
 
+[https://www.zhihu.com/lives/893530793270464512](https://www.zhihu.com/lives/893530793270464512)
+
 ## 案例 ##
 
 <img src="https://pic2.zhimg.com/v2-9ec7b9c6045ff56b62e1f1e9895f593e_r.jpg" width="100%" />
