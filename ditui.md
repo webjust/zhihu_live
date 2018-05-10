@@ -20,7 +20,8 @@
 
 ## 第三方公司：
 - 地推侠 http://www.dituixia.net/
-- 猪八戒 https://shop.zbj.com/20140516/https://shop.zbj.com/16706949/
+- 猪八戒 https://shop.zbj.com/16706949/
+- 猪八戒 https://shop.zbj.com/20140516/
 
 ## 招聘地推注意事项：
 - https://www.zhihu.com/question/22607319
